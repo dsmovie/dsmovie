@@ -5,4 +5,4 @@
 
 - https://www.dushe.app/
 - https://www.duse.app/
-- https://www.dsmovie2019.app/
+- https://www.dsmovie2019.tv/
